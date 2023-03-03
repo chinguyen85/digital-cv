@@ -8,7 +8,7 @@ _Customer Service Specialist and Admin Assistant_ <br>
 
 [Email](mailto:khanhchi.fe@gmail.com) / [LinkedIn](https://www.linkedin.com/in/khanh-chi-nguyen-dinh-266b4894/) / [GitHub](https://chinguyen85.github.io/digital-cv/)
 
-## ![image](https://user-images.githubusercontent.com/126580425/222670740-997f0b0c-14e4-4550-ba3f-7e9e18b39959.png) Hospitality Industry Experience
+## ![image](https://user-images.githubusercontent.com/126580425/222670740-997f0b0c-14e4-4550-ba3f-7e9e18b39959.png) Customer Service Experience
 
 **Senior Reservations Agent** @ [InterContinental Phu Quoc Long Beach Resort](https://phuquoc.intercontinental.com/) _(Apr 2018 - May 2021)_ <br>
 A 5-stars luxury resort in Phu Quoc managed by IHG.
